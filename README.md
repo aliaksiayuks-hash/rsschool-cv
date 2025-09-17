@@ -1,1 +1,1 @@
-https://aliaksiayuks-hash.github.io/rsschool-cv/cv
+https://aliaksiayuks-hash.github.io/rsschool-cv/
